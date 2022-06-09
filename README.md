@@ -2,7 +2,7 @@
 
 👀 I’m interested in what I'am interested
 
-🌱 I’m currently learning philosophy of human's life
+🌱 I’m currently learning philosophy about life
 
 💞️ I’m looking to collaborate on What i am doing
 
